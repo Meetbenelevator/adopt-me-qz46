@@ -1,4 +1,4 @@
-#  
+#  adopt me premium Script offers the most advanced adopt me Script, with fly and auto-upgrade. Perfect for dominating any match.
 
 
 
